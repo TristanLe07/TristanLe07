@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning about how to create music and video games.
 
 Working on:
-- Pokemon: The Game (Fan Game/School Project)
+- ABSOLUTELY NOTHING
